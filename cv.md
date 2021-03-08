@@ -65,4 +65,3 @@ I can work in a team, and have good skills. I love to explain people how complex
 ### English knowledge
     
    I evaluate my knowledge to the level A2
-    
